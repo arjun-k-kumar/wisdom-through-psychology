@@ -1,1 +1,1 @@
-# arjun-k-kumar.github.io
+# Wisdom Through Psychology
